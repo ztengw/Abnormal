@@ -1,2 +1,2 @@
-# Dating-Sim-as-a-Bodybuilder-in-Highschool
+# Abnormal
 The craziest dating  sim ever
